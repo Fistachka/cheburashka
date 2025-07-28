@@ -2,7 +2,7 @@
 
 ![з2](https://github.com/user-attachments/assets/f6731c52-9580-4964-972e-a048e2a4e6be)
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/2-ye8Rp0Ykw" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/uay7JyXXcI4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Я был когда-то странной
 Игрушкой безымянной,
@@ -18,7 +18,7 @@
 
 ![з2](https://github.com/user-attachments/assets/f6731c52-9580-4964-972e-a048e2a4e6be)
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/IxMO3RDBouM" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/DOOmzeLomn8" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 YA byl kogda-to strannoj
 Igrushkoj bezymyannoj,
